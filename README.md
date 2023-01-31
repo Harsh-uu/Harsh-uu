@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Harsh-uu
-- 👀 I’m interested in games
+- 👀 I’m interested in graphics and designing
 - 🌱 I’m currently learning web development
 - 📫 How to reach me : @_harshgpta (ig username)
 
